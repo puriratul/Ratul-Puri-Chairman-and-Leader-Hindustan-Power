@@ -118,15 +118,6 @@ He also advocates for clearer policy roadmaps, faster environmental clearances, 
 In a time of climate urgency and rapid technological advancement, Ratul Puri is not just building power plants — he’s building **the future of energy**.
 
 
-## 📣 Call to Action
-
-Are you passionate about clean energy and sustainability?
-
-- Follow Ratul Puri’s initiatives
-- Support renewable energy in your community
-- Share this blog to spread awareness of India's energy champions
-
-
 ## 🔗 Useful Links
 
 - [Ratul Puri Youtube](https://www.youtube.com/@puri_ratul)
